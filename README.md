@@ -11,4 +11,5 @@ As a team Leader of CSTU_UJANI-FulChua , i am very happy that our team participa
 
 Here is the RankList of AUST-IUPC-2025  ->  https://toph.co/c/mtb-presents-aust-inter-university-2025/standings
 ![image alt](https://github.com/shamimkhan8134/AUST-IUPC-2025/blob/main/27327d55-08b5-47fd-802b-fa79531dd8be.jpg)
+![image alt](https://github.com/shamimkhan8134/AUST-IUPC-2025/blob/main/480439153_1369853334042401_7916684854659932874_n.jpg)
 
