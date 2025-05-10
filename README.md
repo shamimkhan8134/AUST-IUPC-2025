@@ -10,4 +10,5 @@ It was the 7th time for me that i can ever participated.
 As a team Leader of CSTU_UJANI-FulChua , i am very happy that our team participated many time in Inter University Programming Contest in National Level.
 
 Here is the RankList of AUST-IUPC-2025  ->  https://toph.co/c/mtb-presents-aust-inter-university-2025/standings
+![image alt](https://github.com/shamimkhan8134/AUST-IUPC-2025/blob/main/27327d55-08b5-47fd-802b-fa79531dd8be.jpg)
 
